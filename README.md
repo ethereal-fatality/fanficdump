@@ -10,7 +10,7 @@ ${{\color{#CA4684}{\textsf{My literature works are dropped here}}}}$
 ♡ ${{\color{#CA4684}{\textsf{Request freely if you want}}}}$ ♡
 
 
-<img width="350" height="350" alt="c6faf46e_original" src="https://file.garden/aSPtuZ-Qjze7pe-Y/Tumblr_l_867156121958686.jpg" />
+<img width="550" height="350" alt="c6faf46e_original" src="https://file.garden/aSPtuZ-Qjze7pe-Y/Tumblr_l_867156121958686.jpg" />
 
 Would ${{\color{#CA4684}{\textsf{you}}}}$ die tonight for **LOVE** *?*
 
@@ -24,7 +24,7 @@ Baby, ${{\color{#CA4684}{\textsf{join me in death}}}}$ ... */lyr*
 
 <div align=center>
 
-<img width="350" height="350" alt="c6faf46e_original" src="https://file.garden/aSPtuZ-Qjze7pe-Y/Tumblr_l_867112849906375.jpg" />
+<img width="650" height="150" alt="c6faf46e_original" src="https://file.garden/aSPtuZ-Qjze7pe-Y/Tumblr_l_1721717682598698.gif" />
 
 
 
@@ -35,4 +35,4 @@ Baby, ${{\color{#CA4684}{\textsf{join me in death}}}}$ ... */lyr*
 
 <div align=center>
 
-<img width="350" height="350" alt="c6faf46e_original" src="https://file.garden/aSPtuZ-Qjze7pe-Y/Tumblr_l_867112849906375.jpg" />
+<img width="650" height="150" alt="c6faf46e_original" src="https://file.garden/aSPtuZ-Qjze7pe-Y/Tumblr_l_1721717682598698.gif" />
